@@ -1,1 +1,1 @@
-https://agliullinadi.github.io/first/index
+https://agliullinadi.github.io/cards/index
